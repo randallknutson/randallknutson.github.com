@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1121954580
+title: How orange is red?
+---
+I love a country where traffic lights are optional depending on traffic.  Between my house and the internet cafe there are four lights.  Coming here today all four were red but I just went right on through.  No one batted an eye. Not even the policemen standing at two of them. That reminds me of an Indonesian joke.<br /><br />There was a guy who ran a red light.  A policeman pulled him over and asked, "What's the matter?  Didn't you see the red light?"  The guy replied, "Yeah, I saw the red light but I didn't see you."

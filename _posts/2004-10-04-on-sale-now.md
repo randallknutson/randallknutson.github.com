@@ -1,0 +1,16 @@
+--- 
+layout: post
+created: 1096877220
+title: On sale now!
+---
+Update* I may have been a bit premature in my anouncement.  I'm having trouble uploading the file to the server.  I'll let you know when it is up.
+<br />
+<br />The video from the BIC Youth Tour, sometimes called the Sea Tribe Tour, is available online now!  Watch it while it is hot!
+<br />
+<br />In order to watch it, you will need the <a href="http://www.xvidmovies.com/codec/">Xvid Codec</a>.  Just download and install it.
+<br />
+<br />The video is available <a href="http://www.islandconnections-intl.com/randallknutson/seatour-sm.avi">here</a>.  It is 106 Mb so it may take a while to download.
+<br />
+<br />I will be bringing a high quality DVD of this back with me over Christmas.
+<br />
+<br />Note* If the video is playing but there is no picture (sound only) go back and reread the second paragraph of this post.

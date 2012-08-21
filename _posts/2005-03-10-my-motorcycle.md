@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1110457680
+title: My Motorcycle
+---
+Here is a picture of my motorcycle.  I really love riding it and I'll be sad to give it up when I leave.  Right now it is for sale. <br /><br /><img src="/sites/default/files/blog/bl-bike.jpg" /><br /><br />If you are wondering why I'm posting so many pictures, it is because I am cleaning off my phone.

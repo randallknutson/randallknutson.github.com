@@ -1,0 +1,8 @@
+--- 
+layout: post
+created: 1098962820
+title: You only thought they came from England
+---
+Apparently, scientists have discovered "Hobbits" here in Indonesia.  On the island of Flores, they have found the skulls of some very small people.  These they have used to create imaginitive drawings to make them look hairy like apes.  This might seem spectacular to some but here on Java there are plenty of short people.  I'm an average 5'8" tall and when I go out in a crowd, My head sticks up over everyone.  I can see how with a little mutation there could be some really short indonesians.  Oh, and they hunted Pygmy Elephants.  Don't have those around anymore.
+<br />
+<br /><a href="http://www.smh.com.au/articles/2004/10/28/1098667866272.html?oneclick=true">Article on Hobbits in Indonesia</a>

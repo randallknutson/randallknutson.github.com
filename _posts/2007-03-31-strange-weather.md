@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1175379420
+title: Strange Weather
+---
+Today outside is some really weird weather.  The sky is a strange light blue and there is this big yellow ball in the sky that it hurts to look at.  I vaguely remember something like it called the "sun" from a long time ago but I guess I have forgotten what it looks like.  The weather has been so nicely grey and stormy for a long time, I mean, what do you do on a day like today?  Go outside?

@@ -1,0 +1,10 @@
+--- 
+layout: post
+created: 1107424800
+title: More on the earthquake
+---
+Turns out the epicenter was 43 Km south of Bandung and was a magnitude of 5.2.  Not very big.  It caused an elementary school to collapse and a few houses to topple but nothing too major.
+<br />
+<br />For more information, <a href="http://www.news.com.au/story/0,10117,12130403-23109,00.html">News.com.au</a>
+<br />
+<br />There is a good look into Indonesian psychology with the drilling in Garut if you read the article.

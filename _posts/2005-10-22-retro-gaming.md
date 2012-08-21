@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1129972500
+title: Retro Gaming
+---
+I've been getting in to classic gaming the last couple weeks.  I've found a bunch of old games I used to enjoy.  SimCity 2000, Where in the World/USA/Time is Carmen Sandiego, Oregon Trail, Swiss Family Robinson, Lemmings and so many more.  These games are just as fun as they used to be.  Looking through all the games that exist for the Commodore 64, Original Nintendo and Apple computers, where are all the good games now?  Seems like all the new games are First Person Shooters, Racing and Sports games, Role Playing games or Real Time Strategy.  Ah, the classics.  Good stuff.

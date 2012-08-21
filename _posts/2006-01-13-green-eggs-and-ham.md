@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1137137340
+title: Green Eggs and Ham
+---
+This is too good to pass up.  For a long time now it has been possible to inject dyes, including green, into eggs.  This produces a colored yolk and <a href="http://lancaster.unl.edu/4h/Embryology/TheAnswer1.htm">colored chicks</a> which are really cute when pink, orange, blue or green.  <br /><br />So the new news is that scientists in Taiwan have developed a green pig.  Yup, you read that right.  A <a href="http://news.bbc.co.uk/2/hi/asia-pacific/4605202.stm">green pig</a>.  Three actually. All internal organs are also green.<br /><br />What this means is that it is now possible to actually make <a href="http://www.amazon.com/gp/product/0394800168/qid=1137116171/sr=8-1/ref=pd_bbs_1/002-6981531-2722418?n=507846&amp;s=books&amp;v=glance">green eggs and ham</a>.  What could possibly be next?<br /><br />When I was a kid, I was inspired by Green Eggs and Ham and decided to make something similar.  It turned out to be purple mashed potatoes which are incredibly hard to eat even though they taste the same as regular mashed potatoes.

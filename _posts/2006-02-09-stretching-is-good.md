@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1139497620
+title: Stretching is Good
+---
+I hope I've learned my lesson.  On Monday I was out running and didn't have any problems going about 3 miles pretty quickly.  That night though I noticed a strange pain in the back of my left knee.  It isn't so bad but I've stopped running until it gets better.  I guess I should be stretching better so I don't pull any more tendons.  Hopefully I can start running again tomorrow.

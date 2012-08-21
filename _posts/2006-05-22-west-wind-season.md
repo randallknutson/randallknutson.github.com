@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1148311740
+title: West Wind Season
+---
+I mentioned before (I think) that it is west wind season here right now which means there are really strong winds and extreme rainstorms.  The last two days have been just nuts.  All night long I got woken up by the wind and the rain agains the roof two stories above me and outside my window.  Driving out to the project site, all the houses we built were wet all the way up to the base of the roof.  The people said the rain was coming in sideways all night long.  Around 2:00PM another storm rolled in and we drove home in it.  It knocked down many trees, signs and other odds and ends including some side of the road food stands.  As my finance assistant said, "It sure is a mighty wind."

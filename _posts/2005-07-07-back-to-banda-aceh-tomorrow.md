@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1120753980
+title: Back to Banda Aceh tomorrow
+---
+I'm headed back to Banda Aceh hopefully tomorrow.  I still don't have a flight confirmed for tomorrow morning but hopefully I will be able to go. I hope to get some more news soon about getting a job but things move slowly with money around here.

@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1095862740
+title: Buzz no more
+---
+Apparently the cause of all those mosquitos was that one of my roommates (who will remain unanimous) has been leaving his window open all the time.  He has a mosquito net so they weren't bothering him but they were filling the rest of the house with mosquitos.  Hopefully the problem has been solved.

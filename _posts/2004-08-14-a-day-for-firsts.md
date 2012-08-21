@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1092505560
+title: A day for firsts
+---
+Today was a day for new things.  In the morning, a group of us guys went to a gym and I worked out for the first time since I quit football in High School.  I'm sure I will be sore for a few days.  The second new thing of the day is I played a round of golf, not mini-golf.  It took me a few holes to figure out how to hit the ball but I did get the hang of it by the 5th or 6th hole.  I even had 2 putts for par in the 9 holes we played.  One of them looped around the hole.  Grrr.  It was a lot of fun though.  I'm sure I will be sore the next few days though (more from the gym than the golf).  We'll see whether either of them stick.

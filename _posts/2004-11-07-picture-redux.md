@@ -1,0 +1,15 @@
+--- 
+layout: post
+created: 1099893180
+title: Picture Redux
+---
+I've told you about some of these pictures and now here they are:
+<br />
+<br />1. Fu Fa Poo Shampoo
+<br />2. Chickens on the golf course (I wasn't able to golf because I pulled a muscle in my back working out)
+<br />3. Meat at one of our favorite restaurants.
+<br />
+<br />Hopefully I will be posting more pictures for everyone.
+<br />
+<br />
+<br /><img src="/sites/default/files/blog/blog-fufapoo.jpg" /><img src="/sites/default/files/blog/blog-chickens.jpg" /><img src="/sites/default/files/blog/blog-goat.jpg" />

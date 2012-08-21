@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1146158640
+title: Another indonesian oddity
+---
+I got back from running this afternoon and was cooling off in the house before I took a shower because if I take it too soon I'll still be sweating when I get out.  Oh, and by shower I mean dumping buckets of cold water on myself.  Anyways, I was informed by my cook that it isn't good to let sweat dry on your body.  I asked why and she just said you have to wipe it off with a towel or it isn't good.  Taking a shower afterwards isn't good enough.  I'm not sure where this one came from.  Probably the same line of thought that makes them think that air gets into the body through the skin (this is bad and where colds come from).

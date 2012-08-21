@@ -1,0 +1,8 @@
+--- 
+layout: post
+created: 1092828780
+title: Tujuh belas (17th) Augustus
+---
+Yesterday was Indonesia's 59th Independance Day.  To celebrate, there is a national holiday and everyone goes home to their villages to celebrate.  There are huge parties everywhere with loud music, games and lot of food.  There are the regular games such as the 3 legged race, eating competitions and general fair type games.  They also have a few that are unique such as sitting on a log over a pool and swatting each other with pillows until someone falls in.  The most famous though is Panjat Pinang. Which is where a team of men attempt to climb a greased pole to get some prizes at the top.  It usually takes them several hours until most of the grease is wiped off.  For more info on Independance day, See <a href="http://www.expat.or.id/info/aug17th.html">this website</a>.
+<br />
+<br />Tujuh Belas means 17 in Indonesian but sounds remarkably similar to Tujuh sebelas (7-11). (note the extra "se").  Our first year here, my roomates and I thought they were asking for money for the local 7-11 store instead of the community celebration.

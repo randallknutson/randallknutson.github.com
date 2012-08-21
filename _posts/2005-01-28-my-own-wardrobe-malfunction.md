@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1106913780
+title: My own wardrobe malfunction
+---
+Today I was "taking care of business" when the button popped off my pants.  This happened right in the middle of the school day.  Luckily I had a break about 5 minutes later and was able to run home and change.  They are some of my most comfortable and beat up pants.  I guess it is time to replace them.

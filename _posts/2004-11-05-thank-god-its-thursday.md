@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1099650120
+title: Thank God it's Thursday
+---
+I'm such an idiot.  I came to school this morning thinking it was thursday instead of friday.  On fridays we wear our school shirts so I had to go back and get mine.  I guess it is better to be friday than thursday.

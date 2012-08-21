@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1142416980
+title: Breaking Hearts
+---
+"Let my heart be broken with the things that break the heart of God."<br />--Bob Pierce<br /><br />When I was in college I had to go to a lot of chapels.  To be honest, I didn't really want to go and rarely remembered anything that was said.  The one thing that I remember is the quote above by Bob Pierce.  I thought it was a good motto for life.  I couldn't remember who quoted it though and yesterday when I was doing some research into Samaritan's Purse, I found out that it was Bob Pierce who said it.  He was a co-founder of Youth for Christ, founder of World Vision and finally founded Samaritan's Purse which as you know is who I now work for.  How cool is that?

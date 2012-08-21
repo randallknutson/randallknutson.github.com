@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1124286480
+title: Quick Appology
+---
+Sorry everyone for the lack of updates recently.  I've been flying between citys about every third day and I didn't have a computer until a few days ago.  I still don't have a way to connect it to the Internet until a few more days so I'm still stuck borrowing other people's computers when I have the chance.  My NEW laptop will be arriving in less than a week and so I will be switching it out again.<br /><br />On Sunday I flew up to Banda Aceh and spent a couple days there.  We visited some property and went over all the plans for the computer centers.  Tuesday I flew to Meulaboh and now it is Indepenence Day so I have the day off.  Still waiting to hear about the funding.  We expect news any day now.  I promise to write more when I have my computer and internet set up again.

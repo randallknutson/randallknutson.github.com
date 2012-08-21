@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1134908100
+title: A Day of Adventures
+---
+I had a great day yesterday.  I decided to go exploring in the morning to find a new beach and spring up in the mountains.  I got on a bike and drove out following the vague directions of: drive out towards the cement factory and turn right, then go up into the mountains following a little trail till you can't drive anymore and then walk.  I did this and ended up quite far up in the middle of nowhere but never found the spring.  I went back and found my bike but the back tire was flat.  Since I was up the side of a mountain I didn't have a lot of choice but to ride it back down.  Just as I got to the bottom the inner tube came out and ripped in half.  I pushed it the last 2 km to the nearest town and they helped me take the rear tire off and then drove me to another town where I could get it fixed.  I got home and had lunch.  Some friends decided to go to another beach and so I went along.  We had a great time and even went to see some Japanese forts from WWII.  We had a blast and then went out to eat dinner.  Finally we had a going away party for someone and then watched Cinderella Man.  I was pretty tired by the end but it was a good day.

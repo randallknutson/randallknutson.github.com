@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1140076020
+title: Employee Surgery
+---
+Last night we all went to the hospital so that one of the guys up here could get his appendix taken out.  The surgery went fine but the wierdest part was when the doctor came out of the surgery room with a prescription for medicine that he needed.  We had to go find the medicine which of course wasn't available in the hospital.  I just keep trying to picture this scene happening in America.  <br /><br />A doctor comes out of the operating room.  "Excuse me, is a relative of so-and-so here?"  <br /><br />"Yes, I am," says the family member.  <br /><br />"The patient needs this drug immediately or he will die.  Please get it as soon as possible."  <br /><br />"Um, do you have it at this hospital?"<br /><br />"Nope.  And since it is so late at night, good luck finding an open pharmacy! Oh, and hurry back.  He really needs it."<br /><br />Okay, not quite as dramatic as that in real life but good grief!

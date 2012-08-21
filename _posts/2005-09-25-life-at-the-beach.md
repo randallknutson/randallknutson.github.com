@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1127666280
+title: Life at the beach
+---
+I love living near the beach.  It is nice to be able to drive for 5 minutes and be at an undeveloped and beautiful beach with nice sand and great waves.  I went yesterday and splashed in the waves for a while. Today we had the regular sunday beach party after church.  Loads of fun.

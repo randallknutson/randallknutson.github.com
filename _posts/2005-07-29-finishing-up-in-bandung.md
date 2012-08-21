@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1122638880
+title: Finishing up in Bandung
+---
+I've been sorting through all the stuff I left behind to see what stuff I want to bring this time.  It is amazing how much stuff I don't really need anymore.  Most of the things that I still own are clothing and toiletries.  Most of my books I shipped home (by the way mom and dad, three boxes should be arriving soon).  I've got everything finished up and I'm ready to go except for my exit permit which, like usual, is taking until the very last minute.  I've got to check in a minute to make sure that my passport is ready since I am leaving tomorrow morning.<br /><br />This will be my first time in Singapore even though I've been in Indonesia for three years. Most people go all the time but I've just never gotten around to going.  I'm excited because there is so much shopping and good food.  I plan on gaining back a few pounds while I'm there.  I've dropped quite a bit since school got out.

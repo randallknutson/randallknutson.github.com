@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1113909660
+title: Finger pain
+---
+I cut my finger on a piece of glass while working on building the set for the upcoming drama today.  I've got the bleading stopped now and it is all bandaged up.  It was my ring finger on my left hand.  It's amazing how hard typing is without it.  To many s's in words.  Hopefully it will be better before I jump into the salty ocean water this weekend.

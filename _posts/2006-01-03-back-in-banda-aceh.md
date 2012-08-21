@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1136275980
+title: Back in Banda Aceh
+---
+I arrived back in Banda Aceh to a long list of things that needed to be done yesterday.  As I work to try and dig my way out of the hole, I'll try and post some of the interesting stuff that I'm working on.  <br /><br />One of these will be the housing project.  I've had some requests for pictures and more details of what we are doing.  I have to be careful since I am under contract with SP and have restrictions on what I can say to the press (and posting online is probably the same thing).  I'll share as much as I can though.<br /><br />Also, my next big trip is starting to shape up nicely.  I'll post some details soon and probably have another newsletter soon as well.  I'll also be looking for people to stay with throughout SouthEast Asia, Central Asia and Europe.<br /><br />Happy New Year Everyone!

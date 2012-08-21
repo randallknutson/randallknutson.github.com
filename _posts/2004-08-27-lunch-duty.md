@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1093625880
+title: Lunch Duty
+---
+Today I had lunch duty with the lower elementary which consists of Kindergarten, First and Second grade.  I was a little hungry and my lunch hadn't arrived yet so I grabbed a donut from the school store.  I was eating it as all the kids showed up.  I was then lectured by quite a few of them that eating a donut for lunch was not healthy.  I didn't feel like arguing with them.  Later in the lunch one of the students, thinking he was clever, started calling me Mr. La-Dee-Da-Dee-Da.  Oh the pain.  Make it stop.

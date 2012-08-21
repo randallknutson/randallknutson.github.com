@@ -1,0 +1,8 @@
+--- 
+layout: post
+created: 1243518690
+title: DrupalCamp Dallas
+---
+<p><a href="http://www.drupalcampdallas.org">DrupalCamp Dallas</a> has launched their website.</p>
+<p>This is going to be an awesome opportunity to find out more about drupal.  You don't have to be a drupal pro to come.  In fact, you should come even if you are trying to figure out if drupal is right for you.   It is going to be a two day barcamp which means it is about whatever you want to talk about.  There will most likely be beginner and advanced tracks so no matter what your skill level is, there will be a place for you.</p>
+<p>Signup is not quick ready but check back once it is.</p>

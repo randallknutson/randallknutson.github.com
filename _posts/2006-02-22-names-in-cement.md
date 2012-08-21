@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1140617040
+title: Names in Cement
+---
+I'm back in the Philippines and having a great time.  It has been about 15 years since I was last here and interestingly, the SIL office in Manila is almost exactly the same as I remember it being.  I even checked to see if my name was still in the cement where we had put it and sure enough, it is still there.  It says Randall and Aaron (Morgan, a friend from then) 7-31-90.  How awesome is that?  The only difference I see is the Nippa hut is now gone.  Eaten by termites.  Everything else is the same, including the small creek ditch we used to play boats in, the pool, the pickle tree (you have to see it to understand) and all the buildings are still the same.  They are all just a lot smaller than I remember.

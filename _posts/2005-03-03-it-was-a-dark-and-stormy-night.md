@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1109833260
+title: It was a dark and stormy night
+---
+Last night was by far the stormiest night I have ever seen in my life.  Starting at around 10 PM it litterally sounded like someone was dumping the ocean on top of our house.  On top of that there was a ton of very close lightning.  We had about 30 lightning strikes where the flash and the boom were at the same time.  It was really incredible.  There was one that was so close I almost fell out of bed.  <br /><br />With all the rain for the last month and a half everything is slightly damp.  Papers start feeling really limp and leather molds over really quick.  My prized baseball glove is covered with mold right now.  The ironic thing about all this is we ran out of water this morning for the first time in 2 years.

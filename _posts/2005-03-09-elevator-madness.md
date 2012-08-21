@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1110378480
+title: Elevator Madness
+---
+Here is a picture from the Bandung Electronics Center which is where I go browsing for fun gadgets.  For some reason, most of the worlds starts with a Ground Floor at the bottom and the First Floor is above it.  In the US we start with the First Floor, also known as the Ground Floor.  Here in Indonesia they take this to the extreme.  Check out this picture of the floors.<br /><br /><img src="/sites/default/files/blog/bl-elevator.jpg" /><br /><br />If you notice, there are three basements for parking.  Nothing strange there.  Then there is a LU floor.  I have no idea what this stands for.  Maybe Lower Upper, maybe Lower Underground and maybe LeTourneau University.  Anyways, it is the real Ground (or First) Floor.  The one above it (and the Second Floor) is marked LG which stands for Lower Ground.  The one above that (the real Third Floor) is marked UG which stands for Upper Ground.  Finally, on the fourth floor is the First Floor.  Why didn't they start with the first floor on the ground?  I don't know.  I didn't build it.

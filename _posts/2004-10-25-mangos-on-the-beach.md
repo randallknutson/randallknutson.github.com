@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1098686160
+title: Mangos on the beach
+---
+There are two things about my childhood in the Philippines that I remember being incredibly good that I haven't been able to find an equivalent for since.  One is mangos and the other is the beaches.  I have searched in the US, Mexico, Thailand and Indonesia (haven't been to Sulawesi or Maluku yet) and haven't found the beaches yet nor the amazingly sweet and yellow mangos.  someday I hope to find these again but in the mean time, a friend here at school just got back from the Philippines to attend a wedding.  She brought back some dried mangos for me since I always talk about how good they are there!  Not as good as the fresh mangos but better than I have had in 15 years.  Thanks so much!

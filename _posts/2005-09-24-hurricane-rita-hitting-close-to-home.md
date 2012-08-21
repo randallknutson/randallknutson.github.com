@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1127546940
+title: Hurricane Rita - hitting close to home
+---
+I've heard that Rita is scheduled to hit close to Tyler which is only about 30 minutes from where I went to college and my sister is there now.  She says they are stocking up on food, flashlights, candles and water in the bathtub.  All you LU people out there, keep your head down!

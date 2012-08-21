@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1113552120
+title: Earthquakes aplenty
+---
+Since Tangkuban Perahu has started acting up we've been having lots of earthquakes.  We had a bit larger one today that shook the school enough to see the walls moving.  We also had a fire drill and talked about what to do in the event of a major earthquake.

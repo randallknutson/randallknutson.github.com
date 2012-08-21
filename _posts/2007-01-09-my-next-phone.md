@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1168390380
+title: My Next Phone
+---
+About 4 years ago when I was out buying my first cellphone (yes, I was a little late), I knew what I wanted out of a phone.  I was looking for more than just a phone, I wanted a phone that also had internet and could connect to regular wireless (like a laptop) as well.  I looked at all sorts of phones, some of which kind of had the functionality but none really worked that well.<br /><br />I ended up going with a moderately nice phone that had bluetooth but none of the features I was looking for.  They just didn't exist yet.  Well...<br /><br />Apple (my favorite company!) just released what WILL be my next phone.  Imagine a device that is a combination of an iPod, miniature laptop, cellphone and camera all combined into a device the size of an iPod with a touchscreen interface and really well integrated.  How cool is that?  Now I just have to justify it to Ryanna...

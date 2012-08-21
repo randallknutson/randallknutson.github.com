@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1150312380
+title: Merapi strikes again
+---
+So apparently Merapi erupted again last night even bigger than last time.  I went up on the roof around 10PM and didn't see anything so I just went to bed.  I just checked again this morning and I can still see the mountain and it looks just like a mountain so I guess I missed the fireworks again.  Either that or the media is making it up.

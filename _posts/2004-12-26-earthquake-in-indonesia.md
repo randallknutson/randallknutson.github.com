@@ -1,0 +1,8 @@
+--- 
+layout: post
+created: 1104097140
+title: Earthquake in Indonesia
+---
+Many of you already know that there was a huge earthquake in Indonesia today.  The Tsunami has caused massave damage across several countries.  Most of these areas have villages situated along the cost and a tidal wave completely destroys most of the towns.
+<br />
+<br />One of the hard hit areas is Phi Phi Island in Thailand where I spent Christmas last year.  More than 200 bungalos and rooms were swept out to sea from the small island with lots of tourists.  My roomate Josh and his brother, who will be our speaker at the youth group retreat in January, are on the island right now.  Please be praying for them.  I will be trying to make contact but may not be until I get back in January since he doesn't e-mail very much and doesn't own a cell phone.

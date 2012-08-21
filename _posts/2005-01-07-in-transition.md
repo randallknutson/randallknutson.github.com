@@ -1,0 +1,8 @@
+--- 
+layout: post
+created: 1105137660
+title: In Transition
+---
+I got back from the cruise with my family last night.  We had a great time.  The cruise was okay but spending time with the whole family again was great.  Is was awesome to have my sister in from Hawaii and my brother and his wife along.  This is really the first time we have been together since we were all adults.  On the cruise I dove with my brother and sister-in-law and saw some really beautiful stuff off of cozumel and I went to the Mayan ruins at Tulum.  That means that now I have seen the main ruins of all three major pre-colonial civilizations.  The Aztecs at <a href="http://www.tenochtitlan.com/">Tenochtitlan</a>, the Incans at <a href="http://www.mnsu.edu/emuseum/prehistory/latinamerica/south/sites/machu_picchu.html">Machu Picchu</a> and the Mayans at <a href="http://www.differentworld.com/mexico/places/tulum/tulum.htm">Tulum</a>.  We also went snorkeling at Xel Ha and saw tons of huge fish and beautiful scenery.  Dinners on cruises are second to none.
+<br />
+<br />I leave in a few more hours to go back to Indonesia.  On my way here I shaved right before I left for the trip and when I arrived in Dallas my mom thought I was growing a beard.  This attests to either the length of the trip or how quickly I grow facial hair.  Catch you on the flip side of the journey.

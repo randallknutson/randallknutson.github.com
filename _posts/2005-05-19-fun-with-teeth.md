@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1116480840
+title: Fun with teeth
+---
+I did get my last two wisdom teeth out last night.  It went relatively smoothly and wasn't nearly as hard as the first two.  I'm glad I never have to go through that again.  One fun complication is that the root of the upper tooth was in my nasal cavity so when he pulled it out it created a hole between my mouth and my nasal cavity. I'm not allowed to blow my nose today.

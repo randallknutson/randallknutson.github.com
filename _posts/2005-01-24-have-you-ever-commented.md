@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1106551020
+title: Have you ever commented?
+---
+I know that there are at least a couple of people out there who read my website and I never seem to get any comments on any of my posts.  I'm guessing this may be due to not being sure how to post a comment so here is how.  Click on the comment right below this post.  It should bring you to a page with just that one post and all of the comments for the post.  Click on "Post a Comment."  Enter your name and comment and it will post.  I may even reply!  So for fun, the question for this post is, have you ever commented on a blog before?  Post below and let me know.

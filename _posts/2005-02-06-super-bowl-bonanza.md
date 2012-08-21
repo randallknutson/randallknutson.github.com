@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1107755520
+title: Super Bowl Bonanza
+---
+Its Super Bowl Monday!  Thats right. Here in Indonesia the Super Bowl is played Monday morning because of the time difference.  Unfortunately we have school during this time!   Because of this many of us are trying our darnedest (I like that word!) not to find out the score before tonight.  There is a rerun on satellite and we are having a party to watch it.  A couple of interesting notes are that the game is cut down an hour for the rerun so we don't get all the "boring" plays which for previous games has sometimes included scoring.  We also don't get the fun commercials.  We get to watch the same old three for English Premiere Football that they have been showing for years.  Contrary to the name, it is definitely NOT football.  It is just boring English soccer.  So for those of you watching right now, enjoy and don't tell me the score.

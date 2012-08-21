@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1095182820
+title: Nothing interesting happened today
+---
+Well maybe something did but I can't think what it was right now.  It was all fairly normal.  Oh, except this guy wanted to race me down a street.  I don't know what he was thinking.  My engine is twice his size so I totally wasted him.  Oh well.  That's about it. (Sorry mom for racing.  I really did have it under control.  He wasn't much of a challenge)

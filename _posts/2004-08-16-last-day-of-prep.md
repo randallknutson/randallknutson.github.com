@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1092652320
+title: Last day of prep
+---
+Today is the last full day we have to prepare for the comming school year.  School starts on Wednesday and tomorrow is a national holiday (more on that tomorrow).  This has been a very good preparation period this year.  We have done TONS of planning and had a sponsored trip to the beach.  I still have lots of things to finish but I'm feeling very good about the coming school year.

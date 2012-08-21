@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1090391640
+title: Meetings, meetings, meetings
+---
+Over the last several days our group that is going to the Sea Tribe Islands has been meeting almost every day.  It has been good to get people together again before the trip as we have been spread out for the last month or so around the world.  We have been finishing up details and plans and bonding as a team.  I'm going to send out a newsletter very soon to detail the trip and tell you how you can pray.

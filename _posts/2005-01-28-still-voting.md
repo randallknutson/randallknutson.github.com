@@ -1,0 +1,12 @@
+--- 
+layout: post
+created: 1106921940
+title: Still voting?
+---
+I got an "Official Absentee Balloting Material" in the mail today from the US.
+<br />
+<br />My first thought was, hmm, I've already voted and the election is over.
+<br />My second thought was, that was awfully late in coming.
+<br />My third thought upon opening it was, oh, its a special election for a bond for the Duncanville School District.
+<br />
+<br />The good news is that I voted.  The bad news is that I really don't know what the issues are so I probably shouldn't have.  Oh well.  Better to have...  my clever whiticisms fail me finally.

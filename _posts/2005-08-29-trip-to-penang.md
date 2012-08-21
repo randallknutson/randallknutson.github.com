@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1125299220
+title: Trip to Penang
+---
+I've got to leave the country again because my visa has expired.  I came in on a 30 day visa on arrival and it is almost expired.  That means I have to take a trip to Penang island in Malaysia for a few days to get a new visa.  How tough is that?  I leave tomorrow morning and leave from Meulaboh to Medan this afternoon.  I can't wait to eat at a western restaurant like Chili's again.  I'm getting a bit tired of fish and rice every day.  I'll be back on Saturday to Medan though.

@@ -1,0 +1,8 @@
+--- 
+layout: post
+created: 1106829180
+title: Staff changes all around
+---
+My assistant, Ray, informed me yesterday that he will be moving to Singapore in two months.  I'm sad to be losing him but I wish him the best.  I'm starting the interviews for a replacement for him already and have some very promising candidates.
+<br />
+<br />My position has also been filled for next year by someone I think is named Tobin.  He has 5 years of experience in IT and is very organized.  That will be good because he will bring some organization to the IT department which is one of my weaker points.  That means I don't have the option of changing my mind anymore.

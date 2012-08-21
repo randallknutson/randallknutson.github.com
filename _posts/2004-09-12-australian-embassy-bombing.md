@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1094968920
+title: Australian Embassy Bombing
+---
+Saturday morning me and Shirley, the school nurse, drove by the Australian Embassy.  It was a pretty amazing site.  After having seen Oklahoma City, Bali, and JW Marriot in Jakarta shortly after I'm starting to understand what happens a little better.  This one was a large car bomb but the Australian Embassy was pretty well protected.  It had a high wall that the bombers were unable to get inside of.  They exploded the bomb on a large 6 lane street outside.  Unfortunately the Embassy is surrounded by 5 or 6 buildings with glass walls all the way up.  Anyone who has ever played with fire crackers will know that it is not too dangerous to explode a firecracker in your hand as long as your hand is open (Please don't try this at home, take my word for it).  If you close your hand around it it will blow your fingers off.  This is similar to what happened here.  They blew up the bomb in the middle of an open area which didn't do much damage to the the actual buildings but blew out most of the windows. I wasn't able to see the blast crater because they had it blocked off but it didn't look like it could be as big as they claimed (50m by 50m and 10m deep).  My condolences to those who lost friends and family.

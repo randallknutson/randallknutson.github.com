@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1097561160
+title: Bush vs. Kerry
+---
+I got my absentee ballot today in the mail.  That means I get to vote.  I'm not going to tell you who I voted for but those of you who know me at all probably already know.  Of course, since it is an absentee ballot, its not going to be counted anyways so here's hoping.

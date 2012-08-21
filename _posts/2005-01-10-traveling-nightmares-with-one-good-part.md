@@ -1,0 +1,12 @@
+--- 
+layout: post
+created: 1105367580
+title: Traveling Nightmares (with one good part)
+---
+I just got done with the longest few days of my life.  I left Dallas Thursday afternoon on a flight to Los Angeles.  That flight wasn't so bad but we were about 10 minutes late into LA due to the weather.  While in LA I got to see one of my best friends, Josh and meet his new wife, Katie, for the first time.  They are both really amazing and fun to hang out with.  They are perfect for each other.  I've got to say that was the most fun in a layover that I have ever had.
+<br />
+<br />Next started the fun part.  As I was checking in to the LA to Hong Kong flight, they informed me that due to strong head winds we would need to make another stop in Seoul for refueling.  The flight eventually boarded and we were delayed in taking off for about an hour and a half.  Finally we took off and 15 hours later we were in Seoul, one hour for refueling then another 3 to Hong Kong.  Of course because of all the delays I missed my connecting flight and had to sit in the airport for 8 hours waiting for the next flight.  Finally at 10 PM (6 hours after my train left for Bandung) I arrived in Jakarta.
+<br />
+<br />Since the train had left and there was no other way to get to Bandung that night I got a hotel room but didn't have enough cash to pay in the morning.  All the ATMs I found were closed so I wandered around for an hour and a half till I found on that would work.  I got enough to pay for the room and went back and caught 4 hours of sleep.  On a side note I don't sleep very well on planes.  I got up at 3:45 and was putting my bags in a Taxi when Charity, who was supposed to take the train with me the following morning but was arriving on a different flight, called and told me she had a car and could pick me up in 5 minutes.  Yay!
+<br />
+<br />The driver decided to take the back way but we managed to make it back to Banung by 8 AM on Monday.  3 days of traveling! Plus the one for crossing the date-line.  I threw my bags in my house and changed my clothes and headed off to school to teach.  Classes have just ended and I'm about ready to get some sleep.  I'm sure I will sleep for a LONG TIME!  Goodnight everyone.

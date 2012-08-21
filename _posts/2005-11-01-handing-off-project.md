@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1130856360
+title: Handing off project
+---
+Today was the last day I was involved in the Women's Vocational Center Project.  I've handed off management to the Base Manager here and will be moving on to other things.  I'll let you know more about what later.  I'll be riding my motorcycle up to Banda Aceh tomorrow morning to spend Lebaran there.  I hope to get some new proposals written up while I'm there.  I haven't heard from anyone in a while so if you want to drop me a line, feel free to do so.

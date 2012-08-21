@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1152160560
+title: Canada Team
+---
+I'm back and working a million miles an hour for 12-14 hours a day.  I arrived back at the exact same time as a work group of 27 people from Canada.  They are here to help with construction on the project site to taking care of all of them is a full time job for 4 of us in addition to all the other things I'm supposed to be catching up on after 6 weeks of being gone from the base.  I'm writing this now in a brief period I have in the morning since I'm still a little jetlagged.  Its the only free time I have all day.<br /><br />My replacement has arrived as well and we're working together to get him up to speed and ready to take over for when I leave in almost exactly a month.  It feels strange to be turning over responsibility for the project since I have been in control for so long but it is also a good thing.  <br /><br />I'll post more when I have a chance.

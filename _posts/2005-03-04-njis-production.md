@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1109946900
+title: NJIS Production
+---
+Tomorrow I will be traveling to Jakarta for two things.  One will be to eat at Chili's and the other is to watch the North Jakarta International School's play Jolly Roger and the Pirate Queen.  It is directed by my friend there named Tim Shea.  Hopefully it will be just like a piece of home, just in Asia.

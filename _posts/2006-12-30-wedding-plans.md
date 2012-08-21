@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1167516960
+title: Wedding Plans
+---
+Ryanna and I have started planning the wedding and have a date.  Mark May 26th, 2007 on your calendar if you want to come.  If you want to make sure that I send you an invitation, please send me an e-mail (lladnar1@gmail.com) with your address.

@@ -1,0 +1,6 @@
+--- 
+layout: post
+created: 1120653000
+title: Helecopter to Meulaboh
+---
+I got a call from a potential company last night asking if I wanted to fly down to Meulaboh to check out the area and see if I would be interested in working there.  I accepted the flight for early this morning but it was delayed due to bad weather.  We eventually made it out and I was able to see most of the road from the air that I took by bike last time.  I got some great video of it and will add it to my trip video.  Now I'm here in Meulaboh for a few days and will be checking things out...
