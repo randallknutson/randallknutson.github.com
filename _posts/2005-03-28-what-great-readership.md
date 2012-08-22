@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1112019060
-title: What great readership
----
-I took a look at the stats for my website and more people are using Firefox than Internet Explorer!  I'm glad so many people have already switched to a safer, faster and more enjoyable internet experience.  For those of you still using the "big blue e," be sure to check out the <a href="http://www.spreadfirefox.com/?q=affiliates&amp;id=3468&amp;t=1">Firefox Browser</a> today.<br /><br />Those of you using Firefox, have you played around with tabs yet?  Press Ctrl+t to open a new tab.  Press ctrl and click on a link to automatically open it in a new tab.  Makes it so easy to open more than one link from a page without having to back and forth.

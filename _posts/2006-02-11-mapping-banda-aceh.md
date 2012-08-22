@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1139666580
-title: Mapping Banda Aceh
----
-So I was out on my bike today driving around with my new GPS unit mapping the city.  I was also searching for a longer and better running path somewhere in my neighborhood.  I must have driven for about an hour, mapping different roads out.  Then I went to reset the trip information to measure out the running path and accidently deleted all the track information I had just spent all that time gathering.  I had to go back and record it all again from scratch.  <br /><br />Well, I've successfully created a rudimentary map of Banda Aceh for my Garmin GPS unit now.  If anyone is interested in trying it out, you can find it at <a href="http://mapcenter.cgpsmapper.com/maplist.php?cnt=98&amp;rgn=Aceh&amp;cat=2">mapcenter</a>.  It is still far from finished but should have most of the basic roads on it.  Needless to say I've learned a lot about GPS, Satellites, creating maps and whatnot since I started the project.

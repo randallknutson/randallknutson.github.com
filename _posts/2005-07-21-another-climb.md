@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1121944140
-title: Another Climb
----
-Tomorrow (Friday) me and a couple other guys are going to go climb a mountain... just because it is there.  I've been trying to pick a mountain while they have been in Kuala Lumpur getting a new visa.  There is a beautiful volcano not too far away and some mountains near it.  At first I wanted to climb the mountains but apparently that is where all the GAM (local freedom fighters) are and it is a little too dangerous.  Okay, how about the volcano?  It is the polise training center to combat GAM.  I think we'll try the volcano since they hopefully won't shoot us.

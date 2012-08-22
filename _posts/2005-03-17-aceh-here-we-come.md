@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1111058160
-title: Aceh here we come
----
-Only two more days till we leave on our trip.  I'm not sure I'll have time to write tomorrow and we leave early on saturday so I'm going to update right now.  We have had two students who aren't going to be able to come with us for various reasons.  That puts our total at 13.  I think we are all ready to go though.  We have T-shirts, ID badges, relief supplies and all the plain/train/automobile tickets we need. <br /><br />Here are some things you can pray for:<br /><br />1. The anti-malarial medicine has been screwing with my emotions.  Pray that I stay sane.<br />2. Pray for all the logistics to work out.  There is plenty that can go wrong.<br />3. Pray that we would have a heart for the people while we am there.<br />4. Pray that we would have stuff to do while we are there.  It is difficult to figure out exactly what we are going to be doing.  We have some plans but they could be thrown out the window the minute we land.<br />5. Pray for Jennie as she is really sick and not sure she can go.

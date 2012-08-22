@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1098956160
-title: Hover Bugs
----
-It is the time of year for the hover bugs to come out.  They are little bugs about the size and shape of lady bugs and their favorite thing to do is hang in the air as if hovering.  It looks like they are caught in a web or hanging from a string but when you approach them they zip about 2 feet away and hover again.  They are quite interesting.

@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1138786440
-title: Virus Caution
----
-There is a new e-mail born virus on the loose.  Any of you who are using MS Windows should take caution.  If you received an e-mail with any of these subjects 'hot movie,' 'A Great Video' or 'Crazy illegal Sex!' or something like it, please be careful.  <br /><br />You cannot get the virus by only receiving the e-mail.  If you click on the link within the e-mail though, you will infect your computer and probably not even know it.  <br /><br />If you have already clicked on the link (naughty you!), it is VERY IMPORTANT that you clean it off before friday.  The virus is scheduled to delete all MS Office and Adobe files from your computer on February 3rd.  If these files are deleted, they are nearly impossible to recover so be careful.<br /><br />If in doubt, be sure to update your virus scanning software and run a complete scan before friday.  You may also want to take this opportunity to backup all your important files, like your doctoral thesis that you have been writing for 4 years but don't have backed up.  It would be a shame to lose it.<br /><br />As always, if you are using a Macintosh computer you don't have to worry about this.

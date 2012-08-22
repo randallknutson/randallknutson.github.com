@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1092829320
-title: Adventures of Feet, Zoss and Wendel
----
-I went golfing again on Independance Day and we hired a caddy for the day.  We told him our names: Pete, Josh and Randall but how they sound to an Indonesian is Feet, Zoss and  Wendel.  On our scorecards that is how our names were spelt.  I'm not telling you my score although it has improved drastically over my first round.

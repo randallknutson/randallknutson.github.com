@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1139952600
-title: Macintosh again has the wind in poop in France
----
-Doesn't make any sense?  I laughed pretty hard when I read it.  Its a translation from french to english using Google Translate.  Check it out:<br />http://translate.google.com/translate?u=http%3A%2F%2Fwww.macgeneration.com%2Fmgnews%2Fdepeche.php%3FaIdDepeche%3D119726&amp;langpair=fr%7Cen&amp;hl=en&amp;c2coff=1&amp;ie=UTF-8&amp;oe=UTF-8&amp;prev=%2Flanguage_tools

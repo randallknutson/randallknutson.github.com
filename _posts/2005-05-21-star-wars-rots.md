@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1116690420
-title: Star Wars ROTS
----
-Finally saw Star Wars: Return of the Sith tonight.  If I were George, I would have condensed the first two movies into a half a movie and made this one into two and a half movies.  Every reviewer has already said what I am thinking after seeing it.  This is the movie that fulfilled our desire for more to the story.  If you haven't seen it yet, go see it.

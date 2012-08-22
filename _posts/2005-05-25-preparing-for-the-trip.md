@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1117002960
-title: Preparing for the trip
----
-I've been running around and getting things that I thought might be necessary for the road trip that is coming up.  So far here is what I have gotten:<br /><br /><ul><br /><li>tent<br /><li>sleeping bag<br /><li>flashlight<br /><li>compass<br /><li>maps of sumatra<br /><li>video camera<br /><li>tripod<br /><li>umbrella<br /></ul><br /><br />I've also gotten lots of other small stuff.  The big things I'm still trying to get are a leather jacket and motorcycle pants.

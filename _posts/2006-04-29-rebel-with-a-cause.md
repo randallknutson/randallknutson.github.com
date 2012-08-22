@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1146331500
-title: Rebel With A Cause
----
-Today the Regional Director came to the project in Banda Aceh to see how the we have been progressing.  I showed him around and had a great time and as a parting gift he gave me an autographed copy of Rebel With A Cause which is Franklin Graham's autobiography.  I've wanted to read it ever since I went to LeTourneau but haven't gotten around to it yet.  I'm very excited to be able to read it and very much appreciate the gift.

@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1126255860
-title: Nagan Raya Inaugeration
----
-Yesterday morning we had a big party in Nagan Raya for the handover of the first 30 or so houses we finished.  It was a great party with food from our Cafe and about 45 government officials there including some pretty high up people.  Ray Branch, the Asia Area Director for SP was also there.  Lots of fun.  We are still building about 400 more homes in that area alone.

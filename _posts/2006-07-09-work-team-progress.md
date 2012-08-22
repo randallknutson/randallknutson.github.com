@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1152422940
-title: Work Team Progress
----
-The team up here has been doing a great job.  They are really hard workers and have gotten a lot of work done.  We divided them into five teams.  A truss making team, a foundation and brick laying team and three paining teams.  The foundation team started from scratch and already has the house with walls half way up.  They may be able to put the trusses on before they leave.  The truss team builds enough trusses for about 2 houses per day.  The painting teams are painting about one house in two days for each team. <br /><br />Today is Sunday and so we are taking a break, going to the beach, barbequeing and going to church.  Monday we will start work again but they want to start doing more heavy labor so there will be for teams, truss, paint, foundation and brick.  I'm glad so many are wanting to do hard work.<br /><br />We leave thursday and hopefully life can start getting back to a little more normal.  Of course then a few weeks later I'm done so I don't know how normal that will be.

@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1125042480
-title: Acehnese Bird Houses
----
-I wake up each morning to the sound of swifts chirping which is a very nice sound.  At first I thought that there were lots of birds around but it turns out that it is recordings of birds that I am hearing.  The most prestigious food in all of food in China is something called birds nest soup.  It is reportedly good for longevity and is served to honored guests only.  For the history of birds nest soup, &lt;a href=&quot;<br />http://www.soupsong.com/sbirdnes.html"&gt;click here</a>. All around Meulaboh there are enormous houses that I thought were big storerooms or something like that.  Turns out they are houses for housing the birds.  After they build their nests, they are harvested and sold for hundreds of dollars.  The sounds I always hear are recordings to attract the birds to the houses.<br /><br /><a href="/sites/default/files/blog/Picture(10)-779526.jpg"><img style="float:left;cursor:hand;margin:0 10px 10px 0;" src="/sites/default/files/blog/Picture(10)-777127.jpg" border="0" alt="" /></a><br /><br />Here is a photo I took this morning of one of our staff houses.  You can see the massave bird houses in the background.

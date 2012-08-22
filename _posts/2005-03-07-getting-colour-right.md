@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1110176880
-title: Getting Colour Right
----
-While in Jakarta this weekend I went to a bookstore and bought some books.  The one I read on the way back and last night is called <a href="http://www.amazon.co.uk/exec/obidos/ASIN/1904705243/ref=ase_ephotozine-21/026-7379631-1566827">Getting Colour Right</a>.  The first thing I noticed is that it is written in British since color is spelled colour.  The book deals with the many aspects of color management and how to get the picture you took or scanned to look good when it is printed out.  It begins with a section on light theory and how light is perceived by humans.  It then goes into How computers manage color and how to keep colors the same from scanning to manipulation to printing and finally how to touch up colors.  <br /><br />Much of the information in this book I understood at a 10,000 foot level but didn't really know how to put it into practice.  If you enjoy working with photographs and have had trouble getting good results, this book is a must.  My only complaint is that if you don't have a solid computer background, some of the topics may be a little advanced.  Not to worry though, most of the book is still very helpful.

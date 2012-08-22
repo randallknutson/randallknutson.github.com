@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1128610980
-title: The Broken Road
----
-I've driven the road between Meulaboh and Panga three times in the last four days.  Each time I do it, the song "Bless the Broken Road" by Rascal Flatts keeps going through my head.  If ever there was a broken road, it is the one between Panga and Meulaboh.  It has actually gotten better since I first drove it in June but still is nowhere near good.  The total for the trip is 80 kilometers (50 miles for us Americans) and the road almost exactly splits into four equal parts.  The first 20 Km is flat straight and almost no broken road.  I can go over 125 Km/Hr on this stretch and it flies by in a few minutes.  The next 20 Km is the worst section of the road and involves going around potholes through a forest the whole way.  I spend more time going back and forth than forward.  The next 20 Km is in an area where there is still some road but about every quarter of a miles is a broken section so you have to slow down and cross something bumpy.  There are several sections you have to go on the beach for a while.  The last 20 Km is just a regular indonesian road full of potholes and lots of traffic.<br /><br />I'll probably be doing it again in the next couple of weeks.  Yay.

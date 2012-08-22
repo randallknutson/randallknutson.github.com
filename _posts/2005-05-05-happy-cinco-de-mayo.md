@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1115275080
-title: Happy Cinco de Mayo
----
-Today is the 5th of May and also a holiday here (although not because of Mexico).  I get in an argument with a teacher every year whether or not Cinco de Mayo is Mexican Independance day or not.  According to all the resources I can find, it is the celebration of the battle of Puebla where Mexico defeated the troops of Napoleon III.  Mexico was already a country before that.  She still insists she is right because she is from Seattle and she knows.  Never mind that I lived in Texas for 10 years.  Which one is closer to Mexico again?  <br /><br />Anyways, this is a special 5th of May because it is 5/5/05.  Only 397 days until the end of the world.

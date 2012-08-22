@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1113893040
-title: Beach trip this weekend
----
-This weekend 8 of the single teachers are going to the beach.  We have friday off for a Muslim holiday.  Five of us will be riding our motorcycles down and the other three will be riding in a car.  We will be leaving at 4am.  This will probably be the last trip while I am at the school.  Can't wait.  Should be lots of fun.

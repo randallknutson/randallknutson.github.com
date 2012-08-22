@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1114074720
-title: Half way home
----
-I got two wisdom teeth removed yesterday.  I had only local anesthetics so I got to feel the hour and half surgery.  My jaw was pretty sore by the end.  The dentist started with the one that was the hardest and it took him forever to get it out.  It was impacted and one of the roots had a hook at the end.  I'm not kidding.  It wraps around 180 degrees.  He had to drill out part of my jaw to get it out.  I'm a little sore today because of that but not too bad.  I'm taking Ibuprofen to help keep the swelling down.  I'll go back in a couple weeks to get the other two out.  Looking forward to it.

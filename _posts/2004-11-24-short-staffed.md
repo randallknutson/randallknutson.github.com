@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1101297900
-title: Short staffed
----
-Today we had the unfortunate ending of employment for my main computer technician.  This will leave us with one part time technician until I hire a new one.  Good luck to Agus as he pursues a career elsewhere.

@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1149790560
-title: Fun of the day
----
-Today we woke up to the news that Mount Merapi is erupting.  We went out on our second story roof to see what it looks like since it is only 20 miles away.  I must say I was very disappointed.  It was more like some minor volcanic burps than a major eruption.  Some of the team went as close as they could today and took some photos.<br /><br />Then later this morning we were visiting one of our main villages with the Vice President of Samaritan's Purse.  We were talking to the leaader of the village while sitting in one of the few buildings still standing, which has only a few walls still between the column supports.  Suddenly we had a pretty large aftershock which was the first one I felt.  We all went running crazily outside but only one wall fell in a little.  Needless to say we finished the meeting outside.<br /><br />Here is a shot that one of our team members took while driving near the volcano.  All of the white around the cone used to be trees but is now either covered with ash or totally burnt.<br /><br /><a href="/sites/default/files/blog/Volcano-764855.jpg"><img style="float:left;cursor:hand;margin:0 10px 10px 0;" src="/sites/default/files/blog/Volcano-761715.jpg" border="0" alt="" /></a>

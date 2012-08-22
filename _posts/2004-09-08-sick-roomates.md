@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1094649240
-title: Sick Roomates
----
-My roomate was not feeling very well yesterday.  I covered a lot of his classes for him.  Teaching middle school science and math is a lot of fun.  Students at that age still don't know a lot and are eager to learn.  It was a fun break to my usual load of High Schoolers.  I enjoy them too but in a different way.  Teaching both loads (although not all of his) was quite tiring but exciting.  Anyways, I talked to my sister at college today and it turns out her roomate is sick to.  Coincidence?  I think not.

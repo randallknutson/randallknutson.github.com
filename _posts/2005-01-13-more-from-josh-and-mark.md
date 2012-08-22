@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1105603500
-title: More from Josh and Mark
----
-If you would like to read Josh's account and Mark's account from their time in Phi Phi as well as see the picture from the day after when they were helping people, go to <a href="http://www.peaceportalalliance.com/ministries_intercultural.html">Peace Portal Alliance</a>.  One of our teachers who was in Thailand got the newspaper this photo came from the day after the disaster and that was how he knew Josh was safe.  Pretty amazing!

@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1145542020
-title: First Part of June Itinerary
----
-I've purchased the first part of my ticket home in June.  I'll be leaving on the 3rd and arrive in the US at 9:45 AM on the 4th of June.  I'll be leaving the US at 6:35PM on te 16th of June. <br /><br />Airline  Flight From  Time   To Time<br />JAPAN AIRLINES 5839 KUL KualaLumpur 06/03/2006 10:50 PM  NRT 06/04/2006 06:55 AM<br />AMERICAN AIR 176 NRT Tokyo 06/04/2006 12:25 PM DFW 06/04/2006 09:45 AM<br /><br />AMERICAN AIR 2465 DFW Dallas/FW 06/16/2006 06:25 PM LAX 06/16/2006 07:31 PM<br />CATHAY PACIFIC 6121 LAX Los Angeles 06/16/2006 11:55 PM HK 06/18/2006 05:35 AM<br />CATHAY PACIFIC 6099 HK Hong Kong 06/18/2006 08:50 AM KUL 06/18/2006 12:30 PM<br /><br />I still have to purchase the tickets to get me from Banda Aceh to Kuala Lumpur but that is easier (and hopefully cheaper) than the rest of the flight.  I'll post an updated itinerary when I have it.

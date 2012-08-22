@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1133956200
-title: House building supplies
----
-I'd like to give you guys an idea of what is going on at my current job.  I'm now mainly shelter manager in Banda Aceh and am in charge of building 450 houses for tsunami victims.  The project is already underway with a village of 36 complete.  We are now working on a village of 224, most of which are partially started.  One of the hardest things right now is getting supplies, especially wood.  This is encouraging though because it means that construction is going on a full pace.  I've told our field supervisors not to start any new houses since we are already signed up to be doing around 150.  We just can't get enough material right now.  We fill up the warehouse and it is empty within a couple days.  Much of the time our materials are just offloaded of the delivery trucks directly to the construction sites.<br /><br />In the grand scheme of things, not being able to get material fast enough is a good problem to have.  Much better than several alternatives.

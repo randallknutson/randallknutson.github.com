@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1115714820
-title: Knoppix Rocks
----
-My hard drive crashed yesterday and I haven't backed up my data since November.  Luckily I have a copy of <a href="http://www.knopper.net/knoppix/">Knoppix</a> lying around that I used for class.  Since my laptop wouldn't boot from the hard drive I put in the CD and booted using the CD drive.  It started no problem and I was able to transfer almost all of my information off the hard drive to the server.  Now I just have to wait for the new hard drive to arrive so I can reinstall everything.  I'm now using my laptop without a hard drive using only Knoppix.  It is suprisingly useful.  Way to go Knoppix!

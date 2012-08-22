@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1113749520
-title: Firefox 1.0.3 Released
----
-For all of you using Firefox 1.0.2 or before, Mozilla has just released a new version.  This fixes several security problems so it is important to upgrade. <a href="http://www.spreadfirefox.com/?q=affiliates&amp;id=3468&amp;t=1">Click Here</a> to download the latest version.<br /><br />For those of you using Internet Explorer, click there also.  It is very dangerous to browse the internet with the big blue e.<br /><br />For those of you using Opera or Safari, nothing to see here.  Move along.  Enjoy your blissful but somewhat perplexed existance.  I may be joining you soon.

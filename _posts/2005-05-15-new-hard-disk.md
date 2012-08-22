@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1116147420
-title: New Hard Disk
----
-I went out yesterday and bought a new hard drive and now have everything installed again.  It certainly feels a lot faster.  I'm trying to figure out why and here is what I have come up with:<br /><br />1. I installed all the latest drivers from Dell with improvements<br />2. The hard disk is faster (5400 instead of 4200 RPM)<br />3. I don't have a lot of extra programs installed yet<br />4. All the files have just been written to disk so they aren't fragmented yet<br />5. The hamsters inside my computer are running faster<br /><br />Whatever the reason, I'm really enjoying the new speed.  There was a time a few months ago where this laptop was so slow it was barely useable.

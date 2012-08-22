@@ -1,8 +1,0 @@
---- 
-layout: post
-created: 1103781180
-title: White Christmas
----
-I made it back safely and without too much trouble.  One of the huge stories is that I made it through security without having to do the crazy hard search like usual.  I guess that was because I was only wearing three pieces of clothing and had nothing in my pocket.  That made sure that I didn't get stopped.
-<br />
-<br />Today the weather dropped and the temperature is currently below 30 and expected to drop into the teens.  It was raining this morning and then turned to sleet and finally snow.  The ground was still warm because it was in the 70s yesterday but a little snow did finally stick.  Hopefully we will have a white christmas this year!  It has been a while since I have seen that.

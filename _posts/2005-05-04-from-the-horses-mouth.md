@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1115233320
-title: From the horses mouth
----
-I got the stitches in my mouth taken out today.  It is finally getting back to normal where I can chew on both sides.  I guess that means it is time to mess up the other side.  The dentist says it won't be as major a deal though, nothing like last time.  I'm going to wait till after the drama on the 13th and 14th.  Speaking of which, it is coming along nicely and should be a lot of fun when we perform it.  We still have the technical rehearsals and dress rehearsals to go.  Still some work on the set to do and props to get.  Tomorrow is a Muslim holiday, not sure what, but it is a welcome break after a very tough three days.  I can't wait till the drama is done because then I don't have anything big left before the end of school

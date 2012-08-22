@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1167906000
-title: Getting Settled in the New Job
----
-I've been working for a couple of days now at my new job and I'm starting to almost feel like I have a clue what is going on.  When I was teaching in Bandung, I had a grey Dell Inspiron 5100 that weighed a ton.  I can't complain too much about the laptop seeing as I bought it and many more like it as IT Director.  When I left though, I wasn't sad to see it go.  I bought a sleek little Macintosh Powerbook 12" and have absolutely loved it ever since. <br /><br />At my new job I got my laptop from them today since I will be doing MS Visual Studio and .Net development.  Lo and behold, it is a grey Dell Inspiron 5100 almost identical to my last one.  Oh well, I guess I wasn't the only person who bought a bunch of them.  I'll be keeping my Mac for personal use though.

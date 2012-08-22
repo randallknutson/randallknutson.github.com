@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1148312580
-title: Updated Itinerary
----
-Here is my complete Itinerary for going home in June:<br /><br />GARUDA AIRLINES 189 Banda Aceh 06/03/2006 11:25 AM<br />MALAYSIA AIRLINES 865 Medan 06/03/2006 15:30 PM<br />JAPAN AIRLINES 5839 Kuala Lumpur 06/03/2006 10:50 PM <br />AMERICAN AIRLINES 176 Tokyo 06/04/2006 12:25 PM <br />Arriving at DFW 06/04/2006 09:45 AM<br /><br />AMERICAN AIR 2465 Dallas/FW 06/16/2006 06:25 PM <br />CATHAY PACIFIC 6121 Los Angeles 06/16/2006 11:55 PM <br />CATHAY PACIFIC 6099 Hong Kong 06/18/2006 08:50 AM<br />MALAYSIA AIRLINES 864 Kuala Lumpur 06/18/2006 14:45 PM<br />GARUDA AIRLINES 182 Medan 06/19/2006 09:45 AM<br />Arriving at Banda Aceh 06/19/2006 10:40 AM<br /><br />Can't wait to get there!

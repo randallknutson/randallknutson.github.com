@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1127041440
-title: Goodbye to Janis
----
-Janis Miles, my sister-in-law's mom and my mom's best friend died yesterday from cancer.  She has been suffering for a long time and is now in Heaven.  I remember going over to her house every Christmas Eve for a party with my family and some other families.  I'm sad to hear she has left but praise God for where she has gone.

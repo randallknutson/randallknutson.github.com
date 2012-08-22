@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1129353420
-title: Returning from RnR
----
-Sorry to everyone for being so late in posting.  I've been on RnR for the last week in Banda Aceh and in Medan.  It has been a really awesome and relaxing trip.  It was really nice to not do much work and to hang out with friends.  I'll hopefully be posting much more again now.

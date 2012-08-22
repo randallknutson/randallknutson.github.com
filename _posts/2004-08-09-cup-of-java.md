@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1092057600
-title: Cup of Java?
----
-<a href="http://www.starbucks.com">Starbucks</a> has finally come to Bandung!  After years of waiting and 3 months of delayed openings a Starbucks on Chiwalk opened on the 31st of July.  Finally, overpriced coffee that has been imported from the US, that was previously imported from our island.  I live on the island of Java which is where java (the coffee) got its name from.  There is plenty of good coffee around but none as expensive as Starbucks.  One of the most popular beans in the world is called cat poop coffee here (commonly called <a href="http://www.nature.com/news/2004/040726/full/040726-5.html">kopi luwak</a>) since it is found in the poop of a small cat that likes the coffee beans.  Apparently they only like the really good ones so the beans in their poop are the best.  $300 per pound.  Of course I don't like coffee so all of this is a moot point to me.

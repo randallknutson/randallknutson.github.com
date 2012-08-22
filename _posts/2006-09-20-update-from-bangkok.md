@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1158741480
-title: Update from Bangkok
----
-We arrived last night in Bangkok and wandered around Khao San for a while.  It is incredibly packed with backpackers, more so than anywhere I have ever been.<br /><br /><a href="/sites/default/files/blog/bangkok1-722372.jpg"><img style="cursor:hand;" src="/sites/default/files/blog/bangkok1-783684.jpg" border="0" alt="" /></a><br />This is Khao San filled with backpackers.  Where's Stephen? (He's there)<br /><br />So we woke up this morning and went to check our e-mail and found out that there was a coup last night and Thailand is now under martial law.  We are fine and hopefully things won't go crazy here.  Either way we are planning on heading to Cambodia in a few days.  I'll post a postcard for Bangkok later.

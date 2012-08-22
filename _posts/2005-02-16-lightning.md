@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1108562040
-title: Lightning
----
-Today we had yet another severe lightning storm.  This one was during the middle of the day so I unplugged all the network gear in case we got hit again.  We have been hit twice in the last two years and I never sleep whenever there is lightning in the area.  Luckily this morning the electrician I hired began installation of the new lightning protection and grounding I'm having installed.  Soon I will be able to sleep soundly again.

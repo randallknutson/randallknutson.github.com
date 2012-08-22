@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1090075440
-title: MS Paintball
----
-I went out and played paintball with the middle school students who are studying english over the summer.  There were only two adults there, me being one of them.  I'm trying to learn to humble myself and not always have to win, to make it funner for those I play with.  I found this really difficult due to the fact that the other person has a high powered gun that really hurts when they shoot you.  I'd like to say I was able to take a shot for their enjoyment but I didn't.  We had a lot of fun and all the students were a little suprised at how hard it is and how much the balls hurt when they hit you.  The worst injuries were a bloody head (just slightly), a direct shot to the ear (one of the worst places to get hit) and a couple of neck shots.

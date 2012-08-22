@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1096543320
-title: (Un)Health Report
----
-I just got my final health report from the checkup in Jakarta.  Everyone who went was diagnosed with "chronic pharyngitis" which I think means a sore throat.  We all had one because it was going around at the school.  Besides that they told me I need to drink more water, exercise a little more and get my wisdom teeth out. I'm probably going to do that last one soon since they are starting to hurt.

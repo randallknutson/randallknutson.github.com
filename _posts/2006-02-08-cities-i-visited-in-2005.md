@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1139388240
-title: Cities I visited in 2005
----
-Okay, I've got to jump on the bandwagon and do a list of cities I have spent at least one night in during 2005.<br /><br />Here is what I can think of so far:<br /><br />Dallas, Texas<br />Cozumel, Mexico<br />Calico/Playa del Carmen, Mexico<br /><br />Penang, Malaysia<br />Singapore, Singapore<br /><br />Bandung, Indonesia<br />Pelabuhan Ratu, Indonesia<br />Bandar Lampung, Indonesia<br />Muara Enim, Indonesia<br />Bengkulu, Indonesia<br />Padang, Indonesia<br />Bukkit Tinggi, Indonesia<br />Danau Toba, Indonesia<br />Meulaboh, Indonesia<br />Gunung Sitoli (Nias), Indonesia<br />Panga, Indonesia<br />Medan, Indonesia<br />Banda Aceh, Indonesia<br />Sabang, Indonesia<br /><br />Been a good year with lots of traveling.  Where have you been?

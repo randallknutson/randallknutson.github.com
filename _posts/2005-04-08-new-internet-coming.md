@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1112944200
-title: New internet coming
----
-For the last four years our school has been using a wireless link (802.11b) to connect downtown to our internet provider.  It is a dedicated 128kbps line but costs an outragious amount of money for that connection.  Also, with 150+ computers connected to it, it can get pretty slow.  I've decided the time is right to invest in satellite internet.  While the price for all the equipment is pretty expensive, the monthly cost is less than half what we are currently paying for 256-1024kbps.  We should break even in 2 years and then be saving money, all for up to 8x the speed we are getting now.  The only question is, how fast can I get it?  All of you with a very cheap, very fast connection, be thankful.

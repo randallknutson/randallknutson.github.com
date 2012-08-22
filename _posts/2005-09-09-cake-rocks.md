@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1126257720
-title: Cake Rocks
----
-I've always loved the band Cake but my new favorite song by them is Mr. Mastadon Farm.  I'm still not entirely sure what it means but sure is fun to listen to.<br /><br />Here are the lyrics:<br /><br />birds fall from the window ledge above mine<br />then they flap their wings at the last second<br />you see birds fall from the window ledge above mine<br />then they flap their wings at the last second<br />I can see their dead weight just dropping like stones<br />or small loaves of bread past my window all the time<br />but unless I get up and walk across the room<br />and peer down below <br />I don't see their last-second curves<br />toward a horizontal flight<br />all these birds just falling from the ledge like stones<br /><br />now due to a construct in my mind<br />that makes their falling and their flight<br />symbolic of my entire existence<br />it becomes important for me to get up and see<br />their last second curves toward flight<br />it's almost as if my life will fall<br />unless I see their ascent<br /><br />Mr. Mastodon farm - Mr. Mastodon farm<br />cut swatches out of all materials<br />Mr. Mastodon farm - Mr. Mastodon farm<br />cut swatches out of all materials

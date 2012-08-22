@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1152211080
-title: Blog Comments
----
-Sorry to all of you who have been trying to post comments.  I turned on moderation of comments a few months ago which means that I have to approve comments before they will appear on the site.  Well, I thought it was going to notify me when someone commented so I could approve it but it never did.  I had a backlog of comments that I just approved.  Special thanks to all of you who have commented, especially Sarah Jo for the birthday greeting!<br /><br />I'll try and stay on top of it in the future but if it becomes a problem, I just put it back to automatic

@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1098874980
-title: Bald is beautiful
----
-Last night I decided my hair was getting too long (at least 8mm).  I decided to give myself a haircut and didn't do a very good job.  To fix it I just shaved it all off again.  Oh well.  Next time maybe I will go to a professional.

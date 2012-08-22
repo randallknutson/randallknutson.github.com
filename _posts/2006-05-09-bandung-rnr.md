@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1147211100
-title: Bandung RnR
----
-Just FYI, tomorrow morning I'll be going to Bandung for probably my last time for a very long time.  I'm headed out for some Rest and Relaxation that is sorely needed.  Looking forward to seeing all my old friends again...  Um, not that they are exactly old but that I haven't seem them in a while... well, I think you get the point.  Its getting late.  I should stop writing.

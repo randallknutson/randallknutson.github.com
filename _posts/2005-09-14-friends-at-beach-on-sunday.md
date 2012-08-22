@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1126679880
-title: Friends at beach on Sunday
----
-<img style="cursor:hand;margin:0 10px 10px 0;" src="/sites/default/files/blog/joanna-emily sunrise-746969.jpg" border="0" alt="" /><br /><br />Here is a picture of my friends, Joanna and Emily, who came down from Banda Aceh, at the beach on Sunday taking a picture of the sunset.

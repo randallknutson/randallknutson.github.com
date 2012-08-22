@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1115274840
-title: Rediscovering Dialup
----
-I brought my computer home yesterday because I was having difficulty sending an e-mail from school.  I dialed up from home instead of using the campus's network.  There has to be something wrong with the network because the dialup feels way faster.  It is sad when dialup feels faster than our broadband internet.  Not to worry though, I've contracted a company to install satellite internet at the end of this month.  That should be a huge improvement.  Maybe even better than dialup!

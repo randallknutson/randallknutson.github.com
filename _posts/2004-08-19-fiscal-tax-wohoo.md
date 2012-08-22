@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1092895080
-title: Fiscal Tax Wohoo!
----
-To leave Indonesia, unless you are on a tourist visa, you have to pay about $120 for a fiscal(exit) tax.  This really hurts especially if you want to fly to Malaysia or Singapore and the airfare isn't even that much.  Good News!  They are planning on <a href="http://www.thejakartapost.com/detaillatestnews.asp?fileid=20040818175215&amp;irec=1">scrapping the tax</a> before next year. Now it won't be nearly so expensive to travel around asia or to go home to the US.

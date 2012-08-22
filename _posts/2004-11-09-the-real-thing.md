@@ -1,8 +1,0 @@
---- 
-layout: post
-created: 1099982580
-title: The Real Thing
----
-I've heard a lot of stuff about Coca-Cola.  I've seen it dissolve a tooth in 24 hours and I've heard you can clean car engines with it.  I do know it does a remarkable job of cutting grease after you eat a pizza.  There are some people here in Indonesia that say you should drink one a week just to clear out the germs in your stomach.  There is a news article that lists probably the most crazy use for coke I've ever seen though.  Check it out
-<br />
-<br /><a href="http://arstechnica.com/columns/science/science-20041107.ars/2">Bugs go Dead</a>

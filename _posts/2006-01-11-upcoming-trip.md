@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1136984280
-title: Upcoming trip
----
-I'm heading out of Banda Aceh again this weekend for a whirlwind trip around northern Sumatra.  I'm flying down to Meulaboh on Friday and will go straight to Panga by either helecopter or float plane.  I have a meeting there about setting up the boat buidling project.  Saturday I will then fly back to Meulaboh and meet with some people there and close up some final business.  Then on Monday I fly to Medan since the flights were full on Tuesday and we have a managers meeting on tuesday.  Wednesday I'll then drive my new motorcycle back from Medan to Banda Aceh.  Whew, lots of traveling coming up.

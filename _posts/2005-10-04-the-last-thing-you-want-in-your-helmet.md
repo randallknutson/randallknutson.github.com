@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1128436680
-title: The last thing you want in your helmet
----
-Oh, I forgot to mention, while I was flying down the road bending over to minimize air resistance and maximize speed, I suddenly saw something I don't like.  Walking across the inside of the visor of my helmet was a spider about the size of a half dollar.  I immediately slammed on my brakes and threw off the helmet.  I did it right where a bunch of indonesian kids were and they thought it was pretty funny.  I told them I did it because there was a spider inside and they thought that was even funnier.  I didn't think it was very funny.

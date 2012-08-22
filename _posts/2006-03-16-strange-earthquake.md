@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1142543700
-title: Strange Earthquake
----
-We just had a really strange earthquake.  I was sitting on the couch at about 10:15 PM watching Morning Call on CNBC when it felt like a car ran into the side of the house.  Most earthquakes here (and there are still a lot) feel like a bunch of shaking and bumping.  This one was just a big jolt and then it was done.  At least I hope it was an earthquake.  I'll find out in the morning.  Time for bed now.

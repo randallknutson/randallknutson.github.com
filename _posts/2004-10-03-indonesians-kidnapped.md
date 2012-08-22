@@ -1,8 +1,0 @@
---- 
-layout: post
-created: 1096801860
-title: Indonesians kidnapped
----
-Two Indonesian women were kidnapped in Iraq a couple days ago.  In the Philippines when someone was kidnapped, the whole country erupted.  We aren't seeing that here so far.  Everyone seems to be waiting to see what will happen.  The kidnappers have demanded the release of Abu Bakar Bashir who is the man responsible for those behind the Bali bombing and the J.W. Mariott bombing in Jakarta.  He is in prison now after being found guilty.  After hearing about the kidnappers demands, he has demanded that they release the women and he refuses to be released because of kidnapping demands.  I must say I am impressed with that response from him.
-<br />
-<br /><a href="http://www.foxnews.com/story/0,2933,134290,00.html">Foxnews story</a>

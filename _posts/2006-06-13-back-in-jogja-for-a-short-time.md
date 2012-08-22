@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1150226580
-title: Back in Jogja (for a short time)
----
-I'm back in Jogja and have been since last night.  Things have really changed since I left on Friday morning.  First, we are ramping down the distribution of the stuff since the emergency phase is over.  Secondly, we have a new boss as of today.  Thirdly, we are starting with the development phase with health and hygene training and planning to help with shelter construction as well.<br /><br />I'll be here till Friday morning at which time I'll fly to Medan for the manager's meeting and then saturday I fly to the US!  To say I'm excited is an understatement.<br /><br />Oh, and tomorrow is my birthday.

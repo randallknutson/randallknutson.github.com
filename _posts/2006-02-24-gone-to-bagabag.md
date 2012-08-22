@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1140787320
-title: Gone to Bagabag
----
-Yesterday afternoon I was sitting around trying to figure out how to fly up to Bagabag on Monday but it wasn't looking very promissing.  While we were talking someone came up and recognized my dad.  We talked for a few minutes and he said he was driving up to Bagabag in a couple hours.  I realized this would be perfect since it would allow me to  go to Corrigador on Wednesday and Thursday and still be back for the wedding on Friday.  So I caught a ride with him and am now in Bagabag.  I'm not sure how or when I will be back but I got here just in time.  <br /><br />Apparently there has been some political instability and a potential coup attempt in Manila just as I was leaving.  Luckily I'm out of the city and hopefully things will calm down before I return.

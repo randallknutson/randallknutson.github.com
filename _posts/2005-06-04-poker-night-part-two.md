@@ -1,6 +1,0 @@
---- 
-layout: post
-created: 1117871100
-title: Poker Night Part Two
----
-We had another poker night after graduation.  For the first two hours things didn't go very well for me.  I litterally didn't win a single hand.  I ran out of money and had to buy back in.  My luck changed pretty drastically after that though.  I ended up coming back and winning with the largest stake of the take in the end.  That is almost enought to offset losses due to the stock market last night.
